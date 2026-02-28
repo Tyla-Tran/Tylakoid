@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tylakoid
+- 👋 Hi, I’m @Tyla
 - 📫 How to reach me -> tylatran21@gmail.com
 
 <!---
